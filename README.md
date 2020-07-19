@@ -1,3 +1,3 @@
 ## introduction
 
-the notes of my literature reading during the graduate,welcome all to discusiss and learn together!
+The notes of my literature reading during the graduate,welcome all to discuss and learn together!
